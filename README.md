@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Joshua Newberry
-- 👀 I’m interested in Robotics, Software development, and Music
+- 👀 I’m interested in Robotics, Software Development, and Music
 - 📫 My email is joshuamnewberry@gmail.com
 - 😄 Pronouns: He/Him
